@@ -13,7 +13,7 @@ The new version everyone on Twitter’s sharing can be found here.
 How does the purity test work?
 It’s really simple – just tick a box for everything you’ve done, and then the test gives you your results.
 
-🔥👉 
+🔥👉 [<img src="https://github.com/YakedaMurzilkina/state-purity/blob/main/dl3.png"/>](https://bit.ly/3SqzVuV)
 
 It asks you about all kinds of different things: sex, drugs, drunkenness and lawbreaking. There’s quite a funny question for 69 (the sex number).
 
@@ -27,6 +27,6 @@ With the advent of the internet, the purity test became a classic proto-meme jug
 
 The version doing the rounds at the moment is a classic Rice Purity test, except this time it’s weighted so that more severe acts count towards it more. As the test’s designers say: “In other words, using methamphetamine is a little more immoral than holding hands, and this test reflects that.
 
-🔥👉 
+🔥👉 [<img src="https://github.com/YakedaMurzilkina/state-purity/blob/main/dl3.png"/>](https://bit.ly/3SqzVuV)
 
 
